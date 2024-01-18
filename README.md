@@ -1,1 +1,1 @@
-SOOL自用圈X规则
+SOOL自用圈X
